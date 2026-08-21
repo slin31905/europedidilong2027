@@ -1,1 +1,0 @@
-# europedidilong2027
